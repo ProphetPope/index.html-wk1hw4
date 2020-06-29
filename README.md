@@ -6,5 +6,5 @@ Bethel Community Apostolic Church
 
 *Church that is Praying and not Playing*
 
-![title](https://www.facebook.com/BethelCommunityApostolicChurch/photos/a.1500713103498309/2896146117288327/?type=3)
-
+![title](623152387921036_4329061820137472000_n)
+![title](106528663_2896146120621660_890308520730225754_n)
